@@ -1,0 +1,1 @@
+#era pra coisa de musica eu simplismente não quis fazer kkkkk
